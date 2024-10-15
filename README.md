@@ -1,4 +1,4 @@
-# HOW TO FOCUS Tutorial (100% approved)
+## HOW TO FOCUS Tutorial (100% approved)
 1. Quality sleep
 2. Chinese technique of focusing on an object 
 3. Bineural beats 40hz 
