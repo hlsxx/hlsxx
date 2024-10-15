@@ -5,3 +5,4 @@
 4. Alpha gpc + espresso
 5. Screen must be at or above eye level
 6. Wearing a hoodie to narrow your vision
+7. Listen to some chillout music
